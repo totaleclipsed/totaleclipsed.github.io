@@ -1,2 +1,2 @@
-# totaleclipsed.github.io
-kindynos-b-speculative-biology-main.zip
+# kindynos-b-speculative-biology-main.zip
+
